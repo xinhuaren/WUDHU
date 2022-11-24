@@ -9,5 +9,5 @@ Menghindari dari busuk nya mulut dan ketika kita menghadap allah harusnya dalam 
 
 
 4.Mencuci lubang hidung
-Manfaat untuk mengatasi penyakit lobang sinus atau penyakit polip yaitu yang bersifat THT
+Manfaat untuk mengatasi penyakit lobang sinus atau penyakit polip yaitu yang bersifat penyakit THT
 
