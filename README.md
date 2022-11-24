@@ -58,3 +58,7 @@ Saat menggosok kaki, Rasullullah menyuruh umatnya untuk berhati-hati karena bila
 Setelah selesai rangkaian wudhu yang benar, disunnahkan untuk membaca doa selepas wudhu. Dan saat memanjatkan doa wudhu, sebaiknya berdoa dengan menghadap kiblat dan mengangkat dua tangan.
 
 - "Asyhadu allaa ilaaha illallaah, wahdahu laa syariika lahu, wa asyhadu anna muhammadan 'abduhu wa Rasuuluhu. Allahumma j'alnii minat tawwabiina, waj'alnii minal mutathahiriina waj'alnii min 'ibaadikash shalihiina."
+
+Artinya :
+
+"Aku bersaksi bahwa tiada Tuhan melainkan Allah, tiada sekutu baginya, dan aku bersaksi bahwa Nabi Muhammad itu hamba dan utusan-Nya. Ya Allah! Jadikanlah aku dari golongan orang-orang yang bertobat dan jadikanlah aku dari golongan orang-orang yang bersuci dan jadikanlah aku bagian dari hamba-hamba-Mu yang saleh."
