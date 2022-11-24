@@ -4,7 +4,10 @@ Berhubung wudhu adalah wajib jadi harus dilakukan wudhu yang sempurna yaitu wudh
 2.Membaca Basmallah
 pembacaan ini bermaksud tujuan yaitu agar lebih benar Supaya bisa lebih fokus karena di kata bismilah ada ke ajaiban
 
-3. Berkumur-kumur
+3.Berkumur-kumur
 Menghindari dari busuk nya mulut dan ketika kita menghadap allah harusnya dalam sebaik baik nya seperti contoh berpakaian yang bagus ketika sholat jum'at
 
+
+4.Mencuci lubang hidung
+Manfaat untuk mengatasi penyakit lobang sinus atau penyakit polip yaitu yang bersifat THT
 
