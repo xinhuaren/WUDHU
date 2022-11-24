@@ -11,3 +11,8 @@ Menghindari dari busuk nya mulut dan ketika kita menghadap allah harusnya dalam 
 4.Mencuci lubang hidung
 Manfaat untuk mengatasi penyakit lobang sinus atau penyakit polip yaitu yang bersifat penyakit THT
 
+5.Mencuci muka tiga kali
+manfaat untuk membersihkan muka dari kotoran yang menempel membuat muka lebih segar dan tampang yang cakep.
+
+
+6.Mencuci kedua belah tangan hingga siku
