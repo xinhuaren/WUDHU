@@ -20,3 +20,13 @@ untuk membersihkan siku siku yang banyak kotoran yang menumpuk di sekitar siku k
 
 7.Mengusap kepala
 untuk menetralkan otak atau melindungi otak dari berbagai hal negatif, melancarkan sistem peredaran darah serta membuat menjadi cerdas
+
+8.Membersihkan kedua telinga
+berguna untuk membersihkan ganguan pendengaran dan kotoran telinga serta ikut menjernihkan suara.
+
+
+9.Mencuci kedua kaki hingga di atas mata kaki
+membersihkan kedua kaki itu wajib ini menentukan orang masuk surga atau neraka, dengan mencuci membuat kaki lebih kuat dan sistem kaki lebih lancar sebagai obat untuk penyakit kaki kecuali luka.
+
+10.Membaca doa wudhu
+sebagai rasa syukur kepada allah sebagai tuhan yang maha esa serta doa doa tobat dan golongan kanan.
