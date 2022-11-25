@@ -12,7 +12,11 @@ Menghindari dari busuk nya mulut dan ketika kita menghadap allah harusnya dalam 
 Manfaat untuk mengatasi penyakit lobang sinus atau penyakit polip yaitu yang bersifat penyakit THT
 
 5.Mencuci muka tiga kali
-manfaat untuk membersihkan muka dari kotoran yang menempel membuat muka lebih segar dan tampang yang cakep.
+manfaat untuk membersihkan muka dari kotoran yang menempel membuat muka lebih segar dan tampang yang cakep dan bercahaya.
 
 
 6.Mencuci kedua belah tangan hingga siku
+untuk membersihkan siku siku yang banyak kotoran yang menumpuk di sekitar siku karena sering dan paling sering terkena benda.
+
+7.Mengusap kepala
+untuk menetralkan otak atau melindungi otak dari berbagai hal negatif, melancarkan sistem peredaran darah serta membuat menjadi cerdas
